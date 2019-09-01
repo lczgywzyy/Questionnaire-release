@@ -1,0 +1,3 @@
+We are conducting an academic survey about phone screenshots. We need to understand your opinions about the privacy in screenshots. In the survey, you are asked to install a customized app developed by us. It will open the screenshot file folder in your phone album. You should answer questions per each screenshot, and tell us some general information about your behaviors of screenshot usage. Once completion, you should remember the survey code at the end of the questionnaire for payment. Note that we won’t store, upload or share any of your screenshots.
+
+After completing the questionnaire, send me the survey code at the end of the questionnaire to receive a bonus of 15 RMB! Thank you for your participation.
